@@ -39,10 +39,3 @@ Current Status your time is up to you
 - Super People
 - Valorant
 
-## ✨ DONATE Buy Me Coffee
-
-BTC -** 144feg2TVeVjhLfXVrKvaTzu2ViX4gYv6q**
-
-
-## 🗿 Disclaimer
-We are not responsible for any ban.
